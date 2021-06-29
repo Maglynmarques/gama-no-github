@@ -1,0 +1,1 @@
+Este curso está sendo inclível, uma grande oportunidade para focar nos estudos de desenvolvimento, e estimula muito a prática! 
